@@ -1,1 +1,0 @@
-# sparta_web_clone_instagram
